@@ -1,2 +1,3 @@
 # MY-FIRST-REPO
-HELLO WORLD
+"hie guys this is Zyzh n Profeesor on gihub stuffin thangz  waizivaLOL!! ungatidii...hapanaa
+
